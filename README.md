@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @18622291910
+。。。。。1- 👋 Hi, I’m @18622291910
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
@@ -10,3 +10,4 @@
 18622291910/18622291910 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I am a newcomer who loves music,videos,literature,and AI skills.lt is a great honor to have the chance to meet family members!l will study hard and never stop striving!Thank you for meeting me!
